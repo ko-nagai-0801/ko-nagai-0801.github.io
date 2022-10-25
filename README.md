@@ -1,1 +1,0 @@
-# ko-nagai-0801.github.io
